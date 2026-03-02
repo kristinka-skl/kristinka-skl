@@ -50,7 +50,7 @@ I value structured organized workflows, clear communication, and aligning techni
 ### 📫 How to reach me:
 
 * 📍 **Location:** Zürich, Switzerland
-* 💼 **LinkedIn:** [www.linkedin.com/in/skliarchuk-khrystyana](www.linkedin.com/in/skliarchuk-khrystyana)
+* 💼 **LinkedIn:** (www.linkedin.com/in/skliarchuk-khrystyana)
 * 📧 **Email:** [kristinka.skl@gmail.com](mailto:kristinka.skl@gmail.com)
 * ✈️ **Telegram:** [@kristinka_skl](https://t.me/kristinka_skl)
 
